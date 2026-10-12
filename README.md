@@ -1,0 +1,1 @@
+# Molly Trapp newsletter assets
